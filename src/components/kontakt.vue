@@ -161,9 +161,9 @@
  Opätovné umytie gyon bathe +šampónom <br>
  impregnácia pneumatík <br>
  Vysušenie mikrovláknom <br>
- Viacstupnove leštenie rotačnou leštičkou  <br>
+ Viacstupňové leštenie rotačnou leštičkou  <br>
  Na lestenie pouzivame pasty od koch chemie <br>
- Konecne umytie vozidla <br>
+ Konečné umytie vozidla <br>
  Dekontaminacia laku <br>
  Nanesenie ochrany na lak vosk, keramika podla dohody
       </p>
